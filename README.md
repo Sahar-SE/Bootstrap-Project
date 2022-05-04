@@ -13,8 +13,8 @@
 
 👤 **Saharsaba**
 - GitHub: [@Sahar-SE](https://github.com/Sahar-SE)
-- Twitter: [@](https://twitter.com/)
-- LinkedIn: [@](https://linkedin.com/in/)
+- Twitter: [@](https://twitter.com/SaharSabaAmiri)
+- LinkedIn: [@](https://linkedin.com/in/sahar-saba-amiri)
 
 ## Show your support
 
